@@ -8,4 +8,4 @@ Mr. Aiello, there is a lot of things I could share. My favorite colors are ***GR
 
 
 
-Here are my current favorite books of the month: 
+Here are my current favorite books of the month:
