@@ -7,6 +7,11 @@ Mr. Aiello, there is a lot of things I could share. My favorite colors are *GREE
 
 Here are my current favorite songs of the month: https://open.spotify.com/playlist/5eUugQ6gbDEG8DPukyJpNn?si=Mo3zPrs9T6-cC6diGig5xQ&utm_source=copy-link
 
+Some more info 5 of those songs.
+
+|  |Track Name | Artist | Raiting (⭐⭐⭐⭐⭐) | Blurb |
+| - | - | - | - | - |
+| 1 | "Washington on Your Side" | Leslie Odom Jr., Daveed Diggs, Okieriete Onaodowan, Cast of Hamilton | ⭐⭐⭐⭐ | Kinda had a hamilton phase, still think this song is amaszing. |
 
 ## Things I Like (Image collage)
 
