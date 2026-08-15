@@ -11,7 +11,7 @@ Some more info 5 of those songs.
 
 |  |Track Name | Artist | Raiting (⭐⭐⭐⭐⭐) | Blurb |
 | - | - | - | - | - |
-| 1 | "Washington on Your Side" | Leslie Odom Jr., Daveed Diggs, Okieriete Onaodowan, Cast of Hamilton | ⭐⭐⭐⭐ | Kinda had a hamilton phase, still think this song is amaszing. |
+| 1 | "Washington on Your Side" | Leslie Odom Jr., Daveed Diggs, Okieriete Onaodowan, Cast of Hamilton | ⭐⭐⭐⭐ | Kinda had a hamilton phase, still think this song is amazing. |
 | 2 | "Piragua" | Lin-Manuel Miranda | ⭐⭐⭐⭐ | I love this song, really gets me in the singing mood and will never miss. |
 | 3 | "Billyeoon Goyangi (Do the Dance)" | ILLIT | ⭐⭐⭐ | This song is by one of my favorite kpop groups. No other words are needed. |
 | 4 | "Black or White" | Micheal Jackson | ⭐⭐⭐ | I love this song, Micheal Jackson was my childhood favorite. |
