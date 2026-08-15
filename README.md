@@ -6,7 +6,7 @@ There is a lot of things I could share. My favorite colors are *GREEN* and *BROW
 
 I am half Korean, a quarter Italian, and a quarter mixed. My dream trip is visit my family in both Italy and Korea. I would love to spend 2 weeks in each place. That way I am able to really spend time with my family and get an overall unfrogettable trip. I haven't really been outside of the US other than going to canada for a day so this trip would be really special.
 
-
+I aspire to be an entertainment lawyer. I want to go to either Ucla or Harvard Law. I would love to start my own law firm and represent only the best actors and public figures in the industry.
 
 
 Here are my current favorite song- https://open.spotify.com/playlist/5eUugQ6gbDEG8DPukyJpNn?si=Mo3zPrs9T6-cC6diGig5xQ&utm_source=copy-link
