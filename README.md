@@ -11,7 +11,7 @@ I am half Korean, a quarter Italian, and a quarter mixed. My dream trip is visit
 
 Here are my current favorite song- https://open.spotify.com/playlist/5eUugQ6gbDEG8DPukyJpNn?si=Mo3zPrs9T6-cC6diGig5xQ&utm_source=copy-link
 
-<strong style="color:#0000FF> Some more info 5 of those songs.</strong>
+<strong style="color:#0000FF"> Some more info 5 of those songs.</strong>
 
 |  |Track Name | Artist | Raiting (⭐⭐⭐⭐⭐) | Blurb |
 | - | - | - | - | - |
