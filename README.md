@@ -7,7 +7,10 @@ There is a lot of things I could share. My favorite colors are *GREEN* and *BROW
 I am half Korean, a quarter Italian, and a quarter mixed. My dream trip is visit my family in both Italy and Korea. I would love to spend 2 weeks in each place. That way I am able to really spend time with my family and get an overall unfrogettable trip. I haven't really been outside of the US other than going to canada for a day so this trip would be really special.
 
 
-Here are my current favorite songs: https://open.spotify.com/playlist/5eUugQ6gbDEG8DPukyJpNn?si=Mo3zPrs9T6-cC6diGig5xQ&utm_source=copy-link
+
+
+[Here are my current favorite song]
+(https://open.spotify.com/playlist/5eUugQ6gbDEG8DPukyJpNn?si=Mo3zPrs9T6-cC6diGig5xQ&utm_source=copy-link)
 
 Some more info 5 of those songs.
 
@@ -18,7 +21,12 @@ Some more info 5 of those songs.
 | 3 | "Billyeoon Goyangi (Do the Dance)" | ILLIT | ⭐⭐⭐ | This song is by one of my favorite kpop groups. No other words are needed. |
 | 4 | "Black or White" | Micheal Jackson | ⭐⭐⭐ | I love this song, Micheal Jackson was my childhood favorite. |
 | 5 | "Your Obedient Servant" | Leslie Odom Jr. Lin-Manuel Miranda, Cast of Hamilton | ⭐⭐⭐⭐ | This song is a masterpiece, I cannot stress this enough ***BEST SONG EVERY***. |
+
+
+
 ## Things I Like (Image collage)
 
 
 ![This text described the picture for screen readers: its a collage of my favorite things!](image.png)
+
+This collage has things I love, smiskis, matcha, dogs, cars, sushi, flowers, and gorgeous buildings.
