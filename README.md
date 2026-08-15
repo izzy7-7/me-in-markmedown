@@ -1,11 +1,13 @@
 # me-in-markmedown
 ## Letter to My Teacher
 
+Hi, my name is Isabella Rose and I am a freshman.
+There is a lot of things I could share. My favorite colors are *GREEN* and *BROWN*. I play volleyball and love listening to music. I watch lots of movies and TV shows like *Gilmore Girls* and *My Life with the Walter Boys*. I also am a big fan of musicals. As you know I am also a reading addict, my current favorte genres are rom-coms and murder mysterys.
 
-Mr. Aiello, there is a lot of things I could share. My favorite colors are *GREEN* and *BROWN*. I play volleyball and love listening to music. I watch lots of movies and TV shows like *Gilmore Girls* and *My Life with the Walter Boys*. I also am a big fan of musicals. As you know I am also a reading addict, my current favorte genres are rom-coms and murder mysterys.
+I am half Korean, a quarter Italian, and a quarter mixed. My dream trip is visit my family in both Italy and Korea. I would love to spend 2 weeks in each place. That way I am able to really spend time with my family and get an overall unfrogettable trip. I haven't really been outside of the US other than going to canada for a day so this trip would be really special.
 
 
-Here are my current favorite songs of the month: https://open.spotify.com/playlist/5eUugQ6gbDEG8DPukyJpNn?si=Mo3zPrs9T6-cC6diGig5xQ&utm_source=copy-link
+Here are my current favorite songs: https://open.spotify.com/playlist/5eUugQ6gbDEG8DPukyJpNn?si=Mo3zPrs9T6-cC6diGig5xQ&utm_source=copy-link
 
 Some more info 5 of those songs.
 
