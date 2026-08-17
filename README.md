@@ -26,6 +26,6 @@ Here are my current favorite song- https://open.spotify.com/playlist/5eUugQ6gbDE
 ## Things I Like (Image collage)
 
 
-![This text described the picture for screen readers: its a collage of my favorite things!](image.png)
+![This is a collage of my favorite things!](image.png)
 
 This collage has things I love, smiskis, matcha, dogs, cars, sushi, flowers, and gorgeous buildings.
